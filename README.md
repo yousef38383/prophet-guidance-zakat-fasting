@@ -16,7 +16,7 @@
 ---
 
 ### روابط ذات صلة
-- [Internet Archive](https://archive.org/details/hadi-al-nabi-zakat-sawm)
+- [Internet Archive](https://archive.org/details/prophet-guidance-zakat-fasting)
 - [Telegram](https://t.me/arabicfreebooks/1570)
 - [Blogger](https://isalamicarabicbooks.blogspot.com/2026/03/blog-post_129.html)
 
